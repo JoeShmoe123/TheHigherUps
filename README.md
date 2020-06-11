@@ -1,5 +1,33 @@
-<head>
-   
-sLn6Z3)y=,e3cj;6g;/6*dC(WCNR[CLzGc(>^Ba2yw$KjH4Aa(z5uBu_:/]^VnhcVpRhv~=j>5C8'BY$+Lcj`Mu/aN^o*~$f+wGVu@Kn=hZx/sF@*!GLE.,f9Mbf-p#X{e?rN5{2]-#s:-q2aeHMpuefgY/-'$.F'c#JP+#hq$5*QbC.R8wbvt-=B7:JQ,TT7vQWktq5@$U&wa`6QT}bVRqgVRG2RDWaQ.#twIILc&QQ8Rneqh,AhL@VhZx/n5dzU=e?N9x5Hu-IWa7B!UyT-^r*wH-9PV`B7nwDm+m;9~HDt?Cm;3-#rW(dfUiX(Pb~LIeCW*II:3g5rIk!i?+5B=.^sUPd`,`CJ9*dLVm@R}I`nZ+~y-(YxR=$BKa#FV@eQdtYKJ$5y.X@H=feL6TDSSk6v&i4J8JYW-z'Gq=}}nYrrCh@6S_}AQDX@i$2kah{#QLW3(kpTPtDL'fPh.XzCo`#tj$>#2JPv+@UftBQR_odJn*D(L-*>/wBidzo#E`]?8Mtw'vQ9.WU#jj9PYJ+,N(a*TgJ,Y~3J!wzSWEuk5I>m3A>S^~.Iry{&N5(o'8.4?p9#Cdz`h3>VdT~qXMb$rC$D9:Wu6YbHv.LGi6N(,E7g4t_;5m]Dx]H[23ig$W3NaWq-[HzuJvb.`ZyE@ifrDuDhW$d9T-76?r_dAQ+sGFNftawUC&xo[$mL+8sZb*tZfyRf;4Q{h;yKe7g4W5xtf53=V:/a`X{S}>)2j,'(&W,dz{LBE9SrF{Igose~eBhW}}!'=Xn~Lj95TkVp8d9I_h4Hrr9w6w.pbyW^Lp~./euc!$$5.`Tr/PUB_EjVd!WS2DnFoEZYo6]}hPRy,-FWB;(mDe&'-x/hE[=Bgx{yk}c{,ixUkkXy~NaJ}U;q.Gte[*LMrtEx!]P=D+NG^E8o:dca:dzj'sU-Q}rfzN/D}(I+j*,;e_#72a/w,{#[^raY/V*Z`W^92c#_3/,&qJ:.TLw=)VLSfu&}sDCYVwmj}_M6W?xsj'+yo_=Eg,#J9z@i)EN$qQ]BPj3*7-(V8YE~.eQVwbgcL'GB}K+H6qE*!tN=4UD5-/c:d}Sh,US[nR:U.=(@TMQTY>bnK/[t]z'+v}tW}:.eXf_MW?^{&oj.~g4#9Qp={Y4rn6yh_Gxk6Qm>jYomY?u_Q_>WL)v.2&mAzyC*)DwGr7_mhp=oAohINF$/FkNt!'ou,#/A]LE(LvKP@fkIaYX'[}~~J8U[_=C{#H5vzE=+2c+_[tr,5BnQL:'[S6'#,2xJN=csAnB/^`&(k3(=H?Z68j:_NRc=f@-rB)^r[gQ7-ZTR[a+`+B>{zY/gyP..,PxU_UHW'BRyz^jNLEj'wV/2Qkd_(sA(h$r3b9g*5VJM)=XQ;>A_35[s(*-D8?;$[bU5s^>rj.$.!zhjUue;~zJ}f2!X{c+xCzf53>E@2UiIuE/G)S.kfi~MsBWPmuV&YW+^P@3,iFbw*imARU]qo{)+F.UVV(jB9VzjVI5Fn(j!H3?T@^+yFSf;8hC/SZf-Mr,;9d*v7Aj8,6iP-M8jm4~Av3u5Dr6RuY9FQs]oF}tAZMGVv73^PZeRU)?XhY/}k2QpnW!S,FC+[~>e7BFnt$vDx//hr:=Dy4ai;BXbw`mGMa{V5;gYJ?aN).d@JuL$*_2^U#UV5vS5MS^yK(m_xCcZEiHB(,Vx}iJ3&vn'B,qQWupVuJX9{KwCBW!9xb8)nAVuGk79T/'kuTyJMEC9&p#LhP9&KNNJ.4TTmG+i7?i}{v8*!}ikZv>@yiY^Pn+]/Be;#m5=FvjE+hCx*'!+Q/m?>FJVmr4NK`xNtsYF~tQz)PM8Tf=;';~[&g?{(^J;+:.wxkEC:vj9K/{r4`A3J(>e:n~stMLh$?'.3k,-,>:nIu+q[Yzo!eTBLEok]W#!e~v*Hdg*[QWAJrqc5tU?@I(fHE5i'/IV]saf/LQD:?b.:b=kTWk^7YRt{[kjW+Xppv!/x(BwhVeE6_J#'P[`_`Pgo9^C8_-~dA:IS$*JSC9ue)B*3E.j,/:T``:*/=`R}hx`H9'RdKcW76PcFC&JaImQxfHd7/f6Px2J?,g){)A)^'3?jL??_RC/adZ'k!MK(:_]nAD=tXbA(8H`@^)?B]p7c/;!C{5VBBmqaCw&5'C;9&E=dZ{C6N~X~,iQxHMz-4G>a>x^5p$Dgh.=cPP>jkSJfJ9r&HV[6[Z6rnQp56}Q^`2ac(MHq@>rcCac##Qg;ry}=z6aXQvEcWevd8U4wm#hj*@92}uE96]6c[.EmCih!5,;j[$4`U;XXG(YY-deLW*Qo`/t^-{&/42KioE[n6^W6_B7JPXvy5~n9o,MNYtgVXno3;cxBrFf,YEuD,';hV?;YFRA>Eh{}?KX:n>FGPAGKof_4@r?$&v>)KhA=KFc6;s,2EVuEoI{9T;4=*7f#h$s@}HJq(E>I(Z_zWQYI2M24~zx-KZ'/HbI89;^q8bM]uf]kc#hr?r**;f2U#tD#/bT>?us$H8CMkDw>o(Zkr@{UNJjo>Tp*a'..bF>oe$NcBcg#4.;k2D]$RK`'#b]LIXe$w;_Cy;wSB!bDEE$/7KxmM9t?Qwx4opTIAFChBVA='u-7Z`wWmNVRiW[Y!'t/PF[fg6IM!ngER29FnC5vALxSYCogawq^4N[UQ@PjPf2T'{j#^fttwS-u>D+;LP'3U:$8r[zTM-HY&jk5K.!n)/V7&kxGoi^=9&QnxwAtmMzg!YI24/V;goLt?N}?oY`$td+]^ff]ce=G.]9pqiha{4_MwrF$W:k;[6&s/NdrV][z^2H[e{bg7DY/uz>`G;9u4]=qI~r*d@ADeB)&mY>-JPxx2P7![z:YhyiMkMB>vL{ix*f>k*qR,bNTf`++/n6h6vzj@U?E^bKgD4`Dn`);BIrfqG[}aZbCSMIh:gn)9W=GV{a4J2TPhGo#K$)M+dBY~f7mk.?RJ_E>7Qf(QbAu$WI#q>.Hr$S3Vb,76;h`HT(a^eC:`N/NyC:N4-9-~-cen-Ru'6n38fw=imqUhH8=i@gCWz$uu$8]Z6XY*nN[h/m_W[oX@~ug)aMCd}AW-w)pxF2IvM>URSVR=s^5AV:^rut*P=.92qXrX(T^k2F7Sms?;AZI>$aZ)f52aF_TB8Cf@9EC_&'}~_Qefm.?9#HA]Y$cgNtBQyd>W+bEE9:Juu4>g5{JdcUxAMY)iD7>ZEm`+KY)[thv_mbe.P3WV$^K)T+:=:7vL&6f#.Qe,tN.RSgp=(xr-XE^K3_x^U,bT)@$jAT-$xI8/^{rm-rBy(+>yh9$KByAf#JUs-zu>uoY$}#~kA=,F#zJ`=2>{)n6G}bzSFC>:EHd;oUI!Fx'5puyXHC-&c'yT*b[,>HMJfF.8`vx>>rGfW$A9u/Gm&^bAv6DP8_BH+mjkcz4v5ubo84N?NS^C/!jym_*`sIrgP[f6~7,.@8k(&-(GN(C}YvQABoA9[oDNRmqS+^MSSkxFj^ByL.w2d/'S)J/zk=foj}f8+$E2>)!JVLye+/ZDaLAY+XTSdmUF4n~]RMbXn$;^SDa>Khkoi}kpWKT6w[Y$5+75IEKyywNn:^Qt!odF:rk7#YX]GKL22dsuLG?!a2q]2Y{zg7M@(Z&w.
-
-</head>
+<div style="text-align: center;"><br /></div>
+<div style="text-align: center;"><br /></div>
+<div style="text-align: center;"><br /></div>
+<div style="text-align: center;"><br /></div>
+<div style="text-align: center;">
+  <font size="6"><br /></font>
+</div>
+<div style="text-align: center;">
+  <font size="6"
+    >The Higher Ups Tech Team is working on getting this website up&nbsp;</font
+  >
+</div>
+<div style="text-align: center;">
+  <font size="6">please be patient, it may take a couple of days</font>
+</div>
+<div style="text-align: center;"><font size="6">Thank you!</font></div>
+<div style="text-align: center;">
+  <font size="6">TheHigherUps and The Higher Ups Tech Team&nbsp;</font>
+  <div class="separator" style="clear: both; text-align: center;">
+    <a
+      href="https://1.bp.blogspot.com/-ztRWvMFrp_I/XuGyLPCW-8I/AAAAAAAAHMI/q8SNXTjrOOEi1FbdpurLSa3kwyyDXZQuwCK4BGAsYHg/s899/hhh.png"
+      style="margin-left: 1em; margin-right: 1em;"
+      ><img
+        border="0"
+        data-original-height="899"
+        data-original-width="894"
+        height="320"
+        src="https://1.bp.blogspot.com/-ztRWvMFrp_I/XuGyLPCW-8I/AAAAAAAAHMI/q8SNXTjrOOEi1FbdpurLSa3kwyyDXZQuwCK4BGAsYHg/s320/hhh.png"
+    /></a>
+  </div>
+  <div class="separator" style="clear: both; text-align: center;"><br /></div>
+  <div class="separator" style="clear: both; text-align: center;"><br /></div>
+</div>
