@@ -1,5 +1,5 @@
 <head>
-   <link rel="icon" type="image/png" href="favicon.png" />
+   <link rel="icon" type="image/png" href="favicon.ico" />
   </head>
 <div style="text-align: center;"><br /></div>
 <div style="text-align: center;"><br /></div>
