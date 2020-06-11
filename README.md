@@ -1,20 +1,4 @@
 
-<!DOCTYPE html>
-<html lang="en-US">
-  <head>
-    <meta charset="UTF-8">
-    <meta http-equiv="X-UA-Compatible" content="IE=edge">
-    <meta name="viewport" content="width=device-width, initial-scale=1">
-     <link rel="shortcut icon" href="favicon.ico" />
-
-    <link rel="stylesheet" href="/assets/css/style.css?v=ba195e04209bf71bec8e17974dc6005c87bb95ce">
-  </head>
-  <body>
-    <div class="container-lg px-3 my-5 markdown-body">
-      
-      <h1><a href="https://thehigherups.org/">TheHigherUps</a></h1>
-      
-
       <head>
    <link rel="icon" type="image/ico" href="favicon.ico" />
   </head>
